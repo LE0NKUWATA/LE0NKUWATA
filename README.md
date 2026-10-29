@@ -6,7 +6,7 @@
 <img src="https://file.garden/ZpHUydGnsnK0DBy5/better.png" width="~" height="~" align="~" hspace="0" alt="juli"/> <br>
 
 <p align="center">
-JULI 15
+JULI , 15
   <p align="center">
-ANY
+ANY , NO DNI
 
